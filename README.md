@@ -1,1 +1,0 @@
-# visualyticssweden.github.io
